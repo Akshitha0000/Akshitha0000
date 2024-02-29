@@ -17,4 +17,4 @@ Welcome to my magical realm of data wonders! I'm a seasoned Data Analyst with a 
 
 - Feel free to reach out for collaborations, discussions, or if you need a magic touch on your data quests! ✨📈
 
-- Email - emaniakshitha565@gmail.com
+- Email - akshithe98@gmail.com
